@@ -1,14 +1,10 @@
-# Salih-KURT-Kimdir
-Biography
-TR.
-09.07.1980 Trabzon Doğumlu.
-
-İlk, orta, lise ve üniversite eğitimimi Trabzon'da tamamladıktan sonra Bilgisayar Öğretmeni olarak göreve başladı.
+TR: 09.07.1980 Trabzon Doğumlu.
+İlk, orta, lise ve üniversite eğitimini Trabzon'da tamamladıktan sonra Bilgisayar Öğretmeni olarak göreve başladı.
 1997-2000 yılları arasında Jandarma İstihbarat ve Teknik Destek Elemanı olarak görev yaptı.
 1997 - 1998 yılları arasında Terörist Başı Abdullah Öcalan'ın Suriye'deki yerini Başbakanlığa bildirerek ilk yakalama heyetinin toplanmasına vesile oldu.
-12.05.2000 yılında askerlik görevimi yapmak üzere İskenderun 1. Deniz Er Eğitim Alayı 2. Bölükte acemi birliği eğitimimi tamamladı.
-Usta birliğimi İstanbul Tuzla Deniz Harp Okulu Kıtalar Komutanlığı 2.Bölükte tamamladı.(5188 Erbaş olarak)
-Türk Silahlı Kuvvetleri bünyesinde oluşan olumsuz şart ve koşullarda sağlığımın bozulması nedeniyle 2009 yılına kadar tedavi gördü.
+12.05.2000 yılında askerlik görevini yapmak üzere İskenderun 1. Deniz Er Eğitim Alayı 2. Bölükte acemi birliği eğitimini tamamladı.
+Usta birliğini İstanbul Tuzla Deniz Harp Okulu Kıtalar Komutanlığı 2.Bölükte tamamladı.(5188 Erbaş olarak)
+Türk Silahlı Kuvvetleri bünyesinde oluşan olumsuz şart ve koşullarda sağlığının bozulması nedeniyle 2009 yılına kadar tedavi gördü.
 2010 yılında Kalekol Projesini tamamlayarak Tübitak'a online olarak teslim etti.
 2011 yılında TRTAJANS şirketini kurdu.
 2011-2015 yılları arasında "TRTAJANS Dünya Barışı" Projesini kamu spotu olarak 422 belediyede gerçekleştirdi.
@@ -20,10 +16,7 @@ Halen EPF'deki üyeliği devam etmektedir.
 TRTAJANS Yönetim Kurulu Başkanı olarak görev yapmakta.
 Yasemin KURT ile Evlidir.
 
-EN:
-
-Born in 09.07.1980 in Trabzon.
-
+EN: Born in 09.07.1980 in Trabzon.
 After completing his primary, secondary, high school and university education in Trabzon, he started to work as a Computer Teacher.
 Between 1997 and 2000, he served as Gendarmerie Intelligence and Technical Support Staff.
 Between 1997 and 1998, he informed the Prime Ministry in the presence of Abdullah Öcalan, the head of the terrorist group, in Syria.
@@ -40,6 +33,3 @@ In 2019, he was invited to join the UN Counseling Staff.
 He is still a member of the EPF.
 He is the Chairman of the Board of Directors of TRTAJANS.
 Yasemin is married to KURT.
- 
--- 
-Dünya Barışı Kamu Spotumuzu İzledinizmi? (World Peace TRTAJANS)
