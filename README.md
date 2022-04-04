@@ -1,41 +1,60 @@
-# Salih-KURT-Kimdir
-Biography
-BIOGRAPHY CURRENT
+Vikipedi, özgür ansiklopedi
+Karabakh War Crimes Investigation Commission
+President
+Salih KURT
 
-Educator, journalist, businessman, NGO manager. He was born on July 9, 1980 in Trabzon. Between 1997 and 1998, he served as the Gendarmerie Intelligence and Technical Support Staff, and between 1997 and 1998, he informed the Prime Ministry of the location of the Head of Terrorist Abdullah Öcalan in Syria, and was instrumental in convening the first arrest team. 
-Between 1998 and 1999, he served in the Prime Ministry High Terrorism Advisory Board. 
-(As 5188 Sergeant) He was treated until 2009 due to the deterioration of his health under the adverse conditions and conditions within the Turkish Armed Forces. In 2010, he completed the Kalekol Project and delivered it to Tübitak online. He founded TRTAJANS company in 2011. 
-Between 2011 and 2015, he carried out the "TRTAJANS World Peace" Project as a public service advertisement in 422 municipalities. In 2015, he became a member of the European Press Federation by obtaining TRTAJANS trademark registration in all 28 EU countries. (BC-13602) received electronic signature authorization as a Member of the World Intellectual Property Organization in 2018.
-Upon invitation, he enrolled in the Master's program in Digital Media at Arizona State University. In 2019, he was nominated for the UN Advisory Staff upon invitation.
-Salih KURT was declared the President of the World Turkish Journalist Union (World Turkish Writers Union) in 2021, after the "European leaders who guide valuable leaders" letter he wrote in 2019 for the fair trial of Muhammed Morsi in humanitarian terms was deemed worthy of the best letter of the year award in Tra2020. 
-While Salih KURT was the chairman of the conference called 1918 Armenian Genocides in April 2021, the Deputy Minister of Natural Resources of Azerbaijan participated in the meeting and KASSAK decided to establish the "Karabakh War Crimes Investigation Commission".
-The Karabakh War Crimes Investigation Commission, which includes Presidents, Prime Ministers and many diplomats from the World of Science, Academic and Politics from 36 Countries, has the distinction of being one of the largest Commissions in the world in a short time.
+1. Makam Kassak Komisyonu Başkanı Dönemi = 20 Mart 2021
 
+Başkanvekili1 Bayram ALTAN Başkanvekili2 Hulusi KILIÇ Başkanvekili3 Güldal AKŞİT
 
-Mr. Salih KURT is the Chairman of the KASSAK Commission, which was established in April 2021.
-
-He is still a member of EPF. Salih Kurt, who continues his duty as the Chairman of the Board of TRTAJANS, is married to Yasemin KURT.
-
-REFERENCES:
-
-Chairman of the KASSAK Commission Salih KURT gave an interview to Arb24 News.
-
-Chairman of the KASSAK Commission Salih KURT spoke to Peshaver News.
-
-Chairman of the KASSAK Commission Salih KURT gave an interview to Sputnik Newspaper. 
-
-Chairman of the KASSAK Commission Salih KURT’s news is on Anadolu Agency.
-
-Chairman of the KASSAK Commission Salih KURT’s news is on Haber7
-
-Chairman of the KASSAK Commission Salih KURT’s news is on TRT
-
-Chairman of the KASSAK Commission Salih KURT gave an interview to Yeniakit. 
-
-Chairman of the KASSAK Commission Salih KURT gave an interview to Istiklal Newspaper
+Yardımcılar Başkan Yardımcısı1 İlham Rahimov (2021-)
+Başkan Yardımcısı2 [[Av. Mustafa Kuran] (2021-)
 
 
-Salih KURT, chairman of TRTAJANS, spoke at the OECD Business Forum. oecd forum-org
+ Doğum tarihi = 9 Temmuz 1980 (41 yaşında)
+Doğum yeri = Trabzon, Türkiye
+Ölüm tarihi =
+Ölüm yeri =
+Doğum adı = Salih KURT
 
-TRTAJANS team for World Peace with Lüleburgaz Mayor Emin Halebak.  (Kentim Kendim Magazine)
+Eşi =
+Yasemin Kurt (e. 2013)
+Çocukları = [İsmail KURT]] (2013)
+öğrenim = K.T.Ü Bilgisayar Teknolojileri dini = İslam websitesi = [1][2] meslek = Üst Düzey Yönetici USSAK - KASSAK Komisyonu Başkanıdır.
+Eğitimci, gazeteci, iş adamı, STK yöneticisi.
+9 Temmuz 1980 tarihinde Trabzon’da dünyaya geldi.
+1997 ve 1998 yılları arasında Jandarma İstihbarat ve Teknik Destek Elemanı olarak görev yapmış, 1997 ve 1998 yılları arasında Terörist Başı Abdullah Öcalan’ın Suriye’deki yerini Başbakanlığa bildirerek ilk yakalama heyetinin toplanmasına vesile olmuştur.
+1998 - 1999 yılları arasında Başbakanlık Yüksek Terör İstişare Kurulu'nda görev almıştır.
+5188 Erbaş olarak Türk Silahlı Kuvvetleri bünyesinde oluşan olumsuz şart ve koşullarda sağlığının bozulması nedeniyle 2009 yılına kadar tedavi gördü.
+2010 yılında Kalekol Projesini tamamlayarak Tübitak’a online olarak teslim etti.
+2011 yılında TRTAJANS şirketini kurdu.
+2011-2015 yılları arasında “TRTAJANS Dünya Barışı” Projesini kamu spotu olarak 422 belediyede gerçekleştirdi.
+2015 yılında 28 AB ülkesinin tamamında TRTAJANS marka tescilini alarak Avrupa Basın Federasyonu’na üye oldu (BC-13602).
+2018 yılında World Intellectual Property Organization Üyesi olarak elektronik imza yetkisi aldı.
+Davet üzerine Arizona State University’de Dijital Medya alanında Master programına kayıt oldu.
+2019 yılında davet üzerine BM Danışman Kadrosu'na aday oldu. Salih KURT Muhammed Mursi ile ilgili insani şartlarda adil yargılanması için 2019 yılında yazdığı “European leaders who guide valuable leaders” mektubunun Tra2020 de 'Yılın en iyi mektubu' ödülüne laik görülmesi üzerine, 2021 yılında World Turkish Journalist Union (Dünya Türk Yazarlar Birliği) Başkanı ilan edildi.
+Salih KURT 2021 yılı Nisan ayında '1918 Ermenilerin Soykırımları' adlı konferansa Başkanlık ettiği sırada, Azerbaycan Tabi Kaynaklar Bakan yardımcısının toplantıya iştirak etmesi sonucu, KASSAK “Karabağ Savaş Suçları Araştırma Komisyonu’nu” kurma kararı aldı.
+36 ülkeden bilim, akademik ve siyaset dünyasından Cumhurbaşkanı, Başbakan çok sayıda diplomatların yer aldığı Karabağ Savaş Suçları Araştırma Komisyonu kısa sürede Dünyanın en büyük Komisyonlarından biri olma özelliğine sahip olmaktadır. 
 
+2021 yılı Nisan ayında kurulan KASSAK Komisyonu'na Sayın Salih KURT Başkanlık etmektedir.
+Halen EPF’deki üyeliği devam etmektedir. TRTAJANS Yönetim Kurulu Başkanı olarak görevini sürdüren Salih Kurt, Yasemin KURT ile evlidir.
+
+KAYNAKÇA:
+
+[KASSAK Komisyonu Başkanı Salih KURT Arb24 Ropörtaj verdi.](https://www.youtube.com/watch?v=WxK41oSeIGQ)KASSAK Komisyonu Başkanı Salih KURT Peshaver News Konuştu.
+KASSAK Komisyonu Başkanı Salih KURT [Sputnik Gazetesine konuştu.](https://trtajans.az/images/Button/Sputnik%20%C4%B0srail.pdf)
+KASSAK Komisyonu Başkanı Salih KURT [Anadolu Ajansında.](https://www.aa.com.tr/tr/dunya/ermenistanin-karabagda-isledigi-savas-suclarini-arastirmak-icin-komisyon-kuruldu/2216248)
+KASSAK Komisyonu Başkanı Salih KURT [Haber7 de](https://www.haber7.com/yasam/haber/3118323-kassak-yonetimi-cumhurbaskani-erdogandan-randevu-istedi)
+KASSAK Komisyonu Başkanı Salih KURT [TRT DE](https://www.trtavaz.com.tr/haber/tur/avrasyadan/ermenistanin-karabagda-isledigi-savas-suclarini-arastirmak-icin-komisyon-kurul/6080551301a30a151076b127)
+KASSAK Komisyonu Başkanı Salih KURT [Yeniakit Röportaj verdi.](https://www.yeniakit.com.tr/haber/kassak-uyelerinden-birlik-mesaji-1545079.html)
+KASSAK Komisyonu Başkanı Salih KURT [İstiklal gazetesine Röportaj](https://www.istiklal.com.tr/haber/tarihi-gercekleri-gun-yuzune-cikartacagiz/625291)
+KASSAK Komisyonu Başkanı Salih KURT [EAS AquaCulture Başkanlık adaylığı](https://www.wotju.com/EasAqua.pdf#page=8)
+KASSAK Komisyonu Başkanı Salih KURT, [ABD sözcüsü Heather Nauert ile görüşmeyi reddetti.](https://www.yeniakit.com.tr/haber/kassak-faaliyetleri-abd-raporunda-1588751.html)
+KASSAK Komisyonu Başkanı Salih KURT  [68 Sayfalık BM Raporunda Yer Aldı](https://www.wotju.com/images/Decument/BM.pdf#page=36)
+TRTAJANS yönetim kurulu başkanı Salih KURT [OECD iş formunda konuştu oecd forum-org](https://www.oecd-forum.org/users/209667-salih-kurt)
+TRTAJANS ekibi Lüleburgaz Belediye Başkanı [Emin Halebak ile Dünya Barışı için (Kentim Kendim magazine)](https://www.docdroid.net/72yZbHP/kentim-kendim-dergisi-29-sayi-pdf#page=40)
+
+^ "KASSAK Komisyonu Başkanı Salih KURT Arb24 Ropörtaj verdi". Peshaver News. 28 Nisan 2021. Erişim tarihi: 30 Temmuz 2021.
+^ "'President Salih KURT' 'Tarihi gerçekleri ortaya çıkaracağız". Anadolu Ajansı. 21 Nisan 2021. Erişim tarihi: 28 Nisan 2021.
+Kategori: 21. Yüzyılın sivil toplum liderlerindendir.Ankara Biyografi![]
+https://tr.wikipedia.org/wiki/Vikipedi:Kassakcommission/President
